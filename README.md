@@ -1,0 +1,1 @@
+Copyan dari sebuah youtube
